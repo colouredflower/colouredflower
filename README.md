@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about html or php, wordpress
 - 📫 How to reach me: Discord Username: Coloured ❀ Flower#0349
 - 😄 Pronouns: Php and Wordpress maseter
-- ⚡ Fun fact: Collabrate with me in php.
+- ⚡ Fun fact: I want to learn ps language.
 
